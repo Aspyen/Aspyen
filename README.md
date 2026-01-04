@@ -1,7 +1,9 @@
 <div Align="center"> 
-🎄 SIGN MY TREE ⭑.ᐟ.ᐟ
-<div Align="center">
-https://colormytree.me/2025/01JE20BZVW91ZJA5CGXG7E8AQ2 <br>
-<i>thankiz leyn⭐️</i>
+<i>🫧 Chase stardom ⭑.ᐟ.ᐟ</i>
+  
+  ────── ⋆⋅☆⋅⋆ ──────
+  <img width="1300" height="264"
+alt="image" src="(https://github.com/user-attachments/assets/47c32cfd-e008-4b49-a61e-71ee79fef412)
+" />
 <div Align="center"> 
 ⋆ ˙⟡ ⋆ .˚  ⊹  ⟡  ⋆
